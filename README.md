@@ -1,1 +1,2 @@
 # Aryanpaoubio
+Hey! I'm Aryan Paou, a tech enthusiast who loves learning and creating. I'm pursuing BCA with specialization in cyber security from Manav Rachna International Institute of Research and Studies. I focus on building full-stack web applications and websites and have a strong interest in computer and internet security. Always curious about new technologies and excited to take on challenges. Let’s connect and build something amazing! 🚀👾🎮
